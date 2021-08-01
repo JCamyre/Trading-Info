@@ -1,0 +1,2 @@
+# Trading-Info
+howtobecomeastocktrader
